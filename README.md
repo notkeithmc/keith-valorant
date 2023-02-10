@@ -14,7 +14,7 @@ or
 - PSilent Aim
 - External ESP
 - Auto Cfgs (Saves cfg's at exit)
-- VWeekly Updates
+- Weekly Updates
 - 0 Flags
 
 ---
