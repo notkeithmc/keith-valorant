@@ -1,8 +1,8 @@
-<h1 align="center"> KeithWare - Valorant Cheating </h1>
+<h1 align="center"> KeithWare - FREE Valorant Cheating </h1>
 
 <h2 align="center">Version v1.1👻 </h2>
 
-### This is a paid cheat free one will be released⭐️100
+### This is a paid cheat, free one will be released⭐️100
 or
 ### You can purchase this Undetected paid version by dming me on discord : cortexmc#9817
 
