@@ -4,7 +4,7 @@
 
 ### This is a paid cheat, free one will be released⭐️100
 or
-### You can purchase this Undetected paid version by dming me on discord : cortexmc#9817
+### You can purchase this Undetected paid version by dming me on discord : **cortexmc#9817**
 
 ### If you guys provide me the support I need i will post multiple cheats or diffrent games for free so stay tuned for them  😎
 
