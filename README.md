@@ -23,7 +23,7 @@ or
 > **Note** **Screenshots will be updated if the cheat is updated**
 
 
-![unknown](https://cdn.discordapp.com/attachments/1070686355111284876/1072423493586653194/VALORANT_2023.02.07-02.46.png)
+(https://cdn.discordapp.com/attachments/1070686355111284876/1072423493586653194/VALORANT_2023.02.07-02.46.png)
 ![unknown](https://media.discordapp.net/attachments/980166346740494368/1071494598125428756/E37oy6SXIAA-SSc.jpg?width=1038&height=584)
 ![unknown](https://media.discordapp.net/attachments/980166346740494368/1073282343248351322/image.png?width=1031&height=584)
 ![unknown](https://media.discordapp.net/attachments/980166346740494368/1071407034483867659/13431134.jpg?width=1052&height=584)
